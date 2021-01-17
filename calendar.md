@@ -42,6 +42,8 @@ Lectures"](https://www.cc-seas.columbia.edu/node/31875), Columbia University.
 
 * Chasteen, Chapter 4
 
+**Due:** Weekly Report
+
 
 ## Week 3: What is a Nation?
 
@@ -159,7 +161,6 @@ No class this week. Exam due by Friday at 5:00pm.
 **Due:** Weekly Report
 
 
-
 ## Week 10: The Cosmic Indian and the Crisis of Modernity
 
 ### Tuesday, March 23, 2021
@@ -182,8 +183,16 @@ No class this week. Exam due by Friday at 5:00pm.
 
 ### Tuesday, March 30, 2021
 
+* Daniel James, “Peronism and the Working Class, 1943-1955”
+*  Eva Perón, “1947 Radio Speech”
+
+
 ### Thursday, April 1, 2021
 
+* Cindy Forster, "Not in All of America Can There Be Found a Country as
+  Democratic as This One": Che and Revolution in Guatemala," pp. 210-244 in
+  Paulo Drino, ed., *Che's Travels: The Making of a Revolutionary in 1950s
+  Latin America* (Duke Univ. Press, 2010).
 
 ## Week 12: Between Revolution and Reform
 
@@ -192,6 +201,7 @@ No class this week. Exam due by Friday at 5:00pm.
 **Readings:**
 
 * Chasteen, Chapter 9.
+* Through Line Podcast, “[There Will Be Bananas](https://www.npr.org/2020/01/07/794302086/there-will-be-bananas)”
 
 
 ### Thursday, April 8, 2021
@@ -201,7 +211,7 @@ No class this week. Exam due by Friday at 5:00pm.
 * Fidel Castro, "History Will Absolve Me"
 * Pablo Neruda, "The Poetry of Anti-imperialism"
 
-**Due:** Weekly Report
+**Due:** Film Review
 
 
 ## Week 13: State Terror and Capitalism
@@ -211,6 +221,8 @@ No class this week. Exam due by Friday at 5:00pm.
 **Readings:**
 
 * Chasteen, Chapter 10
+* This American Life, "[What Happened at Dos
+  Erres](https://www.thisamericanlife.org/465/what-happened-at-dos-erres)"
 
 ### Thursday, April 15, 2021
 
@@ -219,7 +231,7 @@ No class this week. Exam due by Friday at 5:00pm.
 * Argentine Junta Fundamental Concepts, 1983.
 * Thomas C. Wright, "Chile Under State Terrorism," in State Terrorism in Latin America. Chile, Argentina, and International Human Rights (Lanham: Rowman & Littlefield Publishers, 2007), pp. 47-94.
 
-
+**Due:** Weekly Report
 
 ## Week 14: Hope, Struggle, and Catastrophe
 
@@ -227,12 +239,16 @@ No class this week. Exam due by Friday at 5:00pm.
 
 **Readings:**
 
-* Chasteen, Chapter 11.
+* Gil Joseph and Jürgen Buchenau, "The Embers of Revolution, 1968-2000,"
+  *Mexico's Once and Future Revolution* (Dukem 2013).
 
 
 ### Thursday, April 22, 2021
 
+* Mario Garcés, "October 2019: Social Uprising in Neoliberal Chile," *Journal
+  of Latin American Cultural Studies* 28:3 (2019): 483-491.
 
+**Due:** Weekly Report
 
 ## Week 15: As Dave Chappelle says, "Wrap It Up"
 
