@@ -50,4 +50,35 @@ you. Your essay must draw off of only our readings and sessions.
 
 ## film reaction (20%)
 
+Students will pick one of four films this semester to view, research, and write
+about. You must write a 4-6 page analytical review of the film informed by
+a list of specific readings. There [will be] separate instruction pages for
+each film.
+
+1. *Roma* (2018) - Set in Mexico City, this film explores a middle class
+   family's experience of social unrest and family problems in 1970.
+   The main character, Cleo, is a young indigenous woman who works as
+   a domestic in the family home. Directed by Alfonso Cuaron. 
+
+2. *Birds of Passage* (2018) – Colombia. A beautifully shot film that tells the
+   historically-inspired story of the marijuana trade and the Wayúu people in
+   Colombia. If you're interested in indigenous people, in modernity, in
+   narcotrafficking, in the tension between the market, traditional cultures,
+   and violence, this is the film for you. Directed by Ciro Guerra and Cristina
+   Gallego.
+
+3. *The Motorcycle Diaires* (2004). Before Ernesto Guevara became Che, he took
+   a trip with his friend Alberto Granados and an unreliable motorcycle through
+   Argentina, Chile, Bolivia, and Peru. The experiences along the way had
+   a transformative effect on the future revolutionary's commitment to
+   a fundamental humanism. Directed by Walter Sales and based on Guevara's
+   diaries from the trip.
+
+4. *La historia oficial* (1985) -- Argentina. During the military
+   dictatorship in Argentina, women disappeared by the regime who birthed
+   children in detention had their babies stolen. Elite families adopted them
+   without asking questions. The truth went against the official story.
+   Directed by Luis Puenzo.
+
+
 
