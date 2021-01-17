@@ -95,23 +95,20 @@ assistant at the end of class on the day they are due, unless otherwise
 arranged by the professor. Late papers will not be accepted without **prior
 arrangement**, for any reason. This includes technology problems.
 
-**Cell Phones and Laptops:** Please silence our cell phones prior to class.
-Please do not text during class. Cell phones are not permitted in class, and
-need to be put away for the duration of our meetings. Laptops are allowed only
-for tasks related to this class. Distracting use of technology (social media,
-surfing, GroupMe chats, etc.) causes problems not only for your own learning, but for those
-around you. Research shows that analog notetaking improves learning. Consider
-having paper with you. Based on the prevailing literature, hand note-taking–
-both while reading and in class– leads to substantially better educational
-outcomes. You are not required to have a laptop in class, so feel free to leave
-it at home. If, however, you have reason to use your laptop for notetaking,
-I won’t stop you from doing so. 
-
 **Plagiarism and Academic Honesty:** Plagiarism occurs when someone knowingly
 or unknowingly presents another person’s words or ideas as his or her own. Any
 work turned in for this class must meet University standards for academic
 honesty. Any students unsure about how to apply these rules are urged to
 consult with me prior to turning in any written work. 
+
+**Zoom:** We're meeting on Zoom, so please be attentive to good manners online.
+The TAs will be monitoring chat and will answer questions you post there. But,
+please do feel free to interrupt me and ask questions during lecture. We will
+use polls and break-out sessions to discuss the readings and their connections
+to the week's material, so come to class prepared. I will post lectures to
+Canvas after they've been recorded, within a day. Those recordings are only for
+your use in class, and not for download or distribution. Your classmate's
+visages may well appear, and so please respect their privacy.
 
 **Office Hours:** Students are strongly encouraged to speak with me outside of class. The advantages of talking with me include: extra help on an assignment or preparation for an exam; clarification of materials covered in lecture, discussion of my comments on your work; discussion of this or related courses. I am available during office hours on a first-come, first-served basis; if you cannot come by during office hours, please contact me via email or phone and I will be happy to set up an appointment with you.
 
