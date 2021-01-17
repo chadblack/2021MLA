@@ -3,8 +3,7 @@ layout: page
 title: assignments
 ---
 
-1. assignments
-{:toc}
+## weekly reports (30%)
 
 For ten of the semester's weeks, students will write a 1 page paper that synthesizes the readings and
 our synchronous and asynchronous sessions. Weekly Reports are due by midnight
