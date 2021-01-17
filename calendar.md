@@ -73,7 +73,6 @@ Gender and the State in Latin America* (Durham: Duke University Press, 2000) 3-3
 and Histories* (Chicago: University of Chicago Press, 1985).
 
 
-
 ### Thursday, February 11, 2021: Comparative Abolitions
 
 **Readings:**
@@ -101,66 +100,140 @@ in Nineteenth-Century Latin America.” *Latin American Research Review* 46.2 (2
 **Due:** Weekly Report
 
 
-
-## Week 7: Export Economies and 19th-c. Capitalism
+## Week 6: Export Economies and 19th-c. Capitalism
 
 ### Tuesday, February 23, 2021: The International Division of Labor
 
+**Readings:**
+
+* Edward D. Melillo, "The First Green Revolution: Debt Peonage and the Making
+  of the Nitrogen Fertilizer Trade, 1840–1930," *AHR* (Oct 2012): 1028-1060.
+
 ### Thursday, February 25, 2021: Debt, Conflict, Resources
 
+**Readings:**
 
-## Week 8: US Interventions and the Hemispheric Division of Labor
+* Reinhardt, "The Consolidation of the Import-Export Economy in 19th-Cent. Colombia"
+
+**Due:** Weekly Report
+
+## Week 7: US Interventions and the Hemispheric Division of Labor
 
 ### Tuesday, March 2, 2021: US "Protection"
 
+**Readings:**
+
+* Chasteen, Chapter 7.
+
 ### Thursday, March 4, 2021: From Marti to Sandino
 
+**Readings:**
+
+* Ramón Ruíz, "The Roots of Cuban Nationalism"
+* José Martí, "Our America"
+
+**Due:** Weekly Report
 
 ## Exam
 
 No class this week. Exam due by Friday at 5:00pm.
 
-## Week 10: Mexican Revolutions
+## Week 9: Mexican Revolutions
 
 ### Tuesday, March 16, 2021
 
+**Readings:**
+
+* Meyers, Course of Mexican History, Part 1
+* James Creelman, "President Díaz, Hero of the Americas"
+
+
 ### Thursday, March 18, 2021
 
+**Readings:**
 
-## Week 11: The Cosmic Indian and the Crisis of Modernity
+* Meyers, Course of Mexican History, Part 2
+* Francisco Madero, "Plan of San Luis Potosí"
+
+
+**Due:** Weekly Report
+
+
+
+## Week 10: The Cosmic Indian and the Crisis of Modernity
 
 ### Tuesday, March 23, 2021
 
+**Readings:**
+
+* José Carlos Mariátegui, "The Problem of the Indian"
+* Ciro Alegría, "Wide and Alien is the World"
+
+
 ### Thursday, March 25, 2021
 
+**Readings:**
 
-## Week 12: From Popular Fronts to Cold Wars
+* Marisol de la Cadena, "Reconstructing Race"
+
+**Due:** Weekly Report
+
+## Week 11: From Popular Fronts to Cold Wars
 
 ### Tuesday, March 30, 2021
 
 ### Thursday, April 1, 2021
 
 
-## Week 13: Between Revolution and Reform
+## Week 12: Between Revolution and Reform
 
 ### Tuesday, April 6, 2021
 
+**Readings:**
+
+* Chasteen, Chapter 9.
+
+
 ### Thursday, April 8, 2021
 
+**Readings:**
 
-## Week 14: State Terror and Capitalism
+* Fidel Castro, "History Will Absolve Me"
+* Pablo Neruda, "The Poetry of Anti-imperialism"
+
+**Due:** Weekly Report
+
+
+## Week 13: State Terror and Capitalism
 
 ### Tuesday, April 13, 2021
 
+**Readings:**
+
+* Chasteen, Chapter 10
+
 ### Thursday, April 15, 2021
 
+**Readings:**
 
-## Week 15: Hope, Struggle, and Catastrophe
+* Argentine Junta Fundamental Concepts, 1983.
+* Thomas C. Wright, "Chile Under State Terrorism," in State Terrorism in Latin America. Chile, Argentina, and International Human Rights (Lanham: Rowman & Littlefield Publishers, 2007), pp. 47-94.
+
+
+
+## Week 14: Hope, Struggle, and Catastrophe
 
 ### Tuesday, April 20, 2021
 
+**Readings:**
+
+* Chasteen, Chapter 11.
+
+
 ### Thursday, April 22, 2021
 
-## Week 16: As Dave Chappelle says, "Wrap It Up"
+
+
+## Week 15: As Dave Chappelle says, "Wrap It Up"
 
 ### Tuesday, April 27, 2021
