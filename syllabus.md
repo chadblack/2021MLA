@@ -16,6 +16,17 @@ Spring 2021
 
 **TAS:** 
 
+**Kaitlin Simpson**  
+Alphabet list A-Marg  
+**Email:**  ksimps19@vols.utk.edu
+**Office Hours:** Wednesdays, 10:30-12:30, or by appointment.
+
+**Lily Sander:**
+Alphabet list Mart-Z  
+**Email:** lsande27@vols.utk.edu
+**Office Hours:** Mondays 10:00-12:00, or by appointment.
+
+
 # About
 
 This course traces the principal economic, social and political transformations
