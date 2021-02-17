@@ -7,7 +7,7 @@ title: assignments
 
 For ten of the semester's weeks, students will write a 1 page paper that synthesizes the readings and
 our synchronous and asynchronous sessions. Weekly Reports are due by midnight
-on Friday, uploaded onto Canvas. The report will respond to all four of the
+on Friday, uploaded onto Canvas. The report should be three paragraphs long, a respond to all four of the
 following prompts:
 
 * Identify at least one concept, event, claim, or proper noun mentioned in the
