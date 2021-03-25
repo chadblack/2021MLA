@@ -67,7 +67,8 @@ each film.
    Colombia. If you're interested in indigenous people, in modernity, in
    narcotrafficking, in the tension between the market, traditional cultures,
    and violence, this is the film for you. Directed by Ciro Guerra and Cristina
-   Gallego. For more information on the assignment for this film, go [here]().
+   Gallego. For more information on the assignment for this film, go
+   [here](https://chadblack.net/2021MLA/birds/).
 
 3. *The Motorcycle Diaires* (2004). Before Ernesto Guevara became Che, he took
    a trip with his friend Alberto Granados and an unreliable motorcycle through
