@@ -58,27 +58,31 @@ each film.
 1. *Roma* (2018) - Set in Mexico City, this film explores a middle class
    family's experience of social unrest and family problems in 1970.
    The main character, Cleo, is a young indigenous woman who works as
-   a domestic in the family home. Directed by Alfonso Cuaron. 
+   a domestic in the family home. Directed by Alfonso Cuaron. For more
+   information on the assignment for this film, go
+   [here](https://chadblack.net/2021MLA/roma/).
 
 2. *Birds of Passage* (2018) – Colombia. A beautifully shot film that tells the
    historically-inspired story of the marijuana trade and the Wayúu people in
    Colombia. If you're interested in indigenous people, in modernity, in
    narcotrafficking, in the tension between the market, traditional cultures,
    and violence, this is the film for you. Directed by Ciro Guerra and Cristina
-   Gallego.
+   Gallego. For more information on the assignment for this film, go [here]().
 
 3. *The Motorcycle Diaires* (2004). Before Ernesto Guevara became Che, he took
    a trip with his friend Alberto Granados and an unreliable motorcycle through
    Argentina, Chile, Bolivia, and Peru. The experiences along the way had
    a transformative effect on the future revolutionary's commitment to
    a fundamental humanism. Directed by Walter Sales and based on Guevara's
-   diaries from the trip.
+   diaries from the trip. For more information on the assignment for this film, go [here]().
+
 
 4. *La historia oficial* (1985) -- Argentina. During the military
    dictatorship in Argentina, women disappeared by the regime who birthed
    children in detention had their babies stolen. Elite families adopted them
    without asking questions. The truth went against the official story.
-   Directed by Luis Puenzo.
+   Directed by Luis Puenzo. For more information on the assignment for this film, go [here]().
+  
 
 
 
