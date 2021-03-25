@@ -28,7 +28,7 @@ indigenous people, in modernity, in narcotrafficking, in the tension between
 the market, traditional cultures, and violence, this is the film for you. The
 film thus connects to a number of different weeks and themes in our semester,
 any that deal with the question of indigenous people and the national state and
-economy.
+economy. 
 
 Your assignment is to write a critical review of *Birds of Passage* that evaluates the film
 in the context of our semester. In order to do this, you will need to draw on
@@ -54,4 +54,5 @@ Turabian style. A guide to Turabian style citations is available
 will be keeping up with reviews of the film available online. The one exception
 to outside-class resources available for writing this paper is the film’s page
 on the Internet Movie Database, which you may only use to keep track of and
-c
+correctly spell the names of the characters, or to keep the plot straight. Same
+goes for wikipedia.
