@@ -74,7 +74,8 @@ each film.
    Argentina, Chile, Bolivia, and Peru. The experiences along the way had
    a transformative effect on the future revolutionary's commitment to
    a fundamental humanism. Directed by Walter Sales and based on Guevara's
-   diaries from the trip. For more information on the assignment for this film, go [here]().
+   diaries from the trip. For more information on the assignment for this film,
+   go [here](https://chadblack.net/2021MLA/motorcycle/).
 
 
 4. *La historia oficial* (1985) -- Argentina. During the military
