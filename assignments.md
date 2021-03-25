@@ -81,7 +81,8 @@ each film.
    dictatorship in Argentina, women disappeared by the regime who birthed
    children in detention had their babies stolen. Elite families adopted them
    without asking questions. The truth went against the official story.
-   Directed by Luis Puenzo. For more information on the assignment for this film, go [here]().
+   Directed by Luis Puenzo. For more information on the assignment for this
+   film, go [here](https://chadblack.net/2021MLA/historia/).
   
 
 
