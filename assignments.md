@@ -60,7 +60,8 @@ each film.
    The main character, Cleo, is a young indigenous woman who works as
    a domestic in the family home. Directed by Alfonso Cuaron. For more
    information on the assignment for this film, go
-   [here](https://chadblack.net/2021MLA/roma/).
+   [here](https://chadblack.net/2021MLA/roma/). *Roma* is available on
+   [Netflix](https://www.netflix.com/title/80240715?s=i&trkid=13747225).
 
 2. *Birds of Passage* (2018) – Colombia. A beautifully shot film that tells the
    historically-inspired story of the marijuana trade and the Wayúu people in
@@ -84,7 +85,9 @@ each film.
    children in detention had their babies stolen. Elite families adopted them
    without asking questions. The truth went against the official story.
    Directed by Luis Puenzo. For more information on the assignment for this
-   film, go [here](https://chadblack.net/2021MLA/historia/).
+   film, go [here](https://chadblack.net/2021MLA/historia/). *The Official
+   Story* can be rented on [Amazon
+   Prime](https://www.amazon.com/Official-Story-Chunchuna-Villafa%C3%B1e/dp/B084HCGW9Y/ref=sr_1_1?dchild=1&keywords=la+historia+oficial&qid=1617039316&sr=8-1).
   
 
 
