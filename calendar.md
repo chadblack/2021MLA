@@ -189,10 +189,8 @@ No class this week. Exam due by Friday at 5:00pm.
 
 ### Thursday, April 1, 2021
 
-* Cindy Forster, "Not in All of America Can There Be Found a Country as
-  Democratic as This One": Che and Revolution in Guatemala," pp. 210-244 in
-  Paulo Drino, ed., *Che's Travels: The Making of a Revolutionary in 1950s
-  Latin America* (Duke Univ. Press, 2010).
+* Watch *Saludos Amigos*.
+
 
 ## Week 12: Between Revolution and Reform
 
