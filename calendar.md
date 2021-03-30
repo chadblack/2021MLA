@@ -192,6 +192,8 @@ No class this week. Exam due by Friday at 5:00pm.
 * Watch *Saludos Amigos*.
 
 
+**Due:** Weekly Report
+
 ## Week 12: Between Revolution and Reform
 
 ### Tuesday, April 6, 2021
