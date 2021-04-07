@@ -54,7 +54,7 @@ internet resources or other outside readings. Stick to the readings that have
 been assigned in class. Whenever you use ideas from those readings, whether
 explicitly or not, you must cite them in footnotes. Citations should conform to
 Turabian style. A guide to Turabian style citations is available
-[here](https://libguides.utk.edu/c.php?g=188584&p=3122379#s-lg-box-9616961). We
+[here](https://www.chicagomanualofstyle.org/turabian/turabian-notes-and-bibliography-citation-quick-guide.html). We
 will be keeping up with reviews of the film available online. The one exception
 to outside-class resources available for writing this paper is the film’s page
 on the Internet Movie Database, which you may only use to keep track of and
